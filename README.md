@@ -34,7 +34,7 @@ I'm currently working at **Seasia Infotech** ,leading an innovative team in **Ar
 
 ### 🌍 **Socials**:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?style=for-the-badge&logo=linkedin&logoColor=white)](https://linkedin.com/in/ramImarn) 
-[![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?style=for-the-badge&logo=YouTube&logoColor=white)](https://youtube.com/@ramImarn)
+[![YouTube](https://img.shields.io/badge/YouTube-%23FF0000.svg?style=for-the-badge&logo=YouTube&logoColor=white)](https://youtu.be/g-hLDN9e20Y?si=9XsV8DCrStwwGaRn)
 
 ---
 
